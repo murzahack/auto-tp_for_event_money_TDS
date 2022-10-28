@@ -1,1 +1,0 @@
-# auto-tp_for_event_money_TDS
